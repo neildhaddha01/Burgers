@@ -1,0 +1,1 @@
+The recipe is of a vegetarian burger which you will enjoy eating. It is very easy to make.
